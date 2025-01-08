@@ -25,3 +25,7 @@ I want to collaborate with you forever
 Thank you for considering my proposal. I look forward to your thoughts.
 
 Best regards,
+
+Telegram: https://t.me/grit8525
+Discord:   @grit_8525
+skype:     live:.cid.8b6c6a80f9cfc6ee
